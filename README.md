@@ -1,1 +1,0 @@
-# AnimeDraft-by-phunTH
